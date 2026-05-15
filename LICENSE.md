@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with DaVinci Resolve for PC | DaVinci Resolve for Windows professional Filter: proxy-editing & title-animation, the #1
 
 
 
